@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TrickyMikky i am new to this
+join me- 👋 Hi, I’m @TrickyMikky i am new to this
 - 👀 I’m interested in ... learning everything here
 - 🌱 I’m currently learning ... as much as I can 
 - 💞️ I’m looking to collaborate on ... anything I guess
